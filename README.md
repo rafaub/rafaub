@@ -41,4 +41,4 @@
 
 ## 🌍 Conecte-se comigo
 [LinkedIn](https://www.linkedin.com/in/rafaela-uchôa/)  
-📧 rafaela.email@exemplo.com
+📧 rafaelabarbosauchoa@gmail.com
